@@ -12,7 +12,6 @@ You can click the Preview link to take a look at your changes.
 - I'm looking to collaborate with people of similar interests, or partner with startups to build products and businesses.
 - You can reach me via:
 - - Linkedin :  linkedin.com/in/michael-anokwulu
-- - Whatsapp : +234 8163 880 303
-- - Twitter : twitter.com/hercjayofficial
+- - Twitter : twitter.com/hercjay
 
 - Happy to work with you.
